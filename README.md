@@ -1,0 +1,1 @@
+# ParaBilgisi-finance-website-N-SP-TR-I
